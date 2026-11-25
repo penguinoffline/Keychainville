@@ -10,7 +10,7 @@ An archive for all the keychains I designed as gifts. Feel free to use any of th
 
 **25 Nov. 2026**
 
-Herroooo!! Pingura hath arrived again :DD! The repo's name is a bit misleading because this will be more like an archive for all the custom engraved keychain I will be designing as gifts for my lovely pipo :pp 
+Herroooo!! Pingura hath arrived again :DD! The repo is an archive for all the custom engraved keychain I will be designing as gifts for my lovely pipo :pp 
 I'm kicking it off with a Mei Mei keychain (if you're a reels dweller you should know him), and it shall be the face of this repo hehehe. I made it 100 x 50 x 10 with Mei Mei engraved at 1.5 mm while the Pelmeni and texts at 0.8 mm.
 I also wrote a message in Ukrainian for her and as well as a poem I think that suits the two of us :DD Future keychains should also come similarly with a message of the recipient's native language, a poem, and two or three figures.
 
